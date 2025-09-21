@@ -1,2 +1,2 @@
 # das-practice
-this is the path of glory
+This is the path of GLORY
